@@ -1,1 +1,1 @@
-<div align='center'><img alt='Days until gta6' src='media/days_until_gta6.jpg'><h1>Today is 2026-09-10 and there’re 70 days until GTA 6.</h1><p>Xbox Series X: 2026/11/19</p><p>PS5: 2026/11/19</p><p>PC: 2027/??/??</p><div/>
+<div align='center'><img alt='Days until gta6' src='media/days_until_gta6.jpg'><h1>Today is 2026-09-11 and there’re 69 days until GTA 6.</h1><p>Xbox Series X: 2026/11/19</p><p>PS5: 2026/11/19</p><p>PC: 2027/??/??</p><div/>
